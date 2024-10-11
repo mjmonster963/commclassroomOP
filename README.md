@@ -1,3 +1,1 @@
-# commclassroomOP
-
-Kunal Kushwaha learing github amazing..
+Manish jogi is good boy 
